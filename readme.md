@@ -1,0 +1,1 @@
+Dude we should totally like, make an where we build points towards a trip to Japan. Options of gaining points may consist of streaming music videos and sharing popular tourist attraction. 
